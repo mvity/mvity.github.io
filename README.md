@@ -1,1 +1,0 @@
-## Vity blog.
